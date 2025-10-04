@@ -1,4 +1,8 @@
 ## Hi there 👋
+I am 22 years old GameDev, Content Creator and a human being. However, sometimes I am a fox :)
+C#, C++, Java are my best friends. I also study on my own Music Production, Design and everything what seems interesting to me :)
+
+Most time of the year I live in Finland. During the late Autumn and winter I reside in Southern Europe or move into other different directions. 
 
 <!--
 **AKaunitz/AKaunitz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
