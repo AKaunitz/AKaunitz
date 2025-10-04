@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 🦊
 I am 22 years old GameDev, Content Creator and a human being. However, sometimes I am a fox :)
 C#, C++, Java are my best friends. I also study on my own Music Production, Design and everything what seems interesting to me :)
 
