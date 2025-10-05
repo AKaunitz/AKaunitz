@@ -5,6 +5,7 @@ C#, C++, Java are my best friends. I also study on my own Music Production, Desi
 Most time of the year I live in Finland. During the late Autumn and winter I reside in Southern Europe or move into other different directions. 
 
 If you wanna contact with me send an envelope here: aurorakaunitz@gmail.com.
+
 I Usually respond within 1-2 days, if there are no special circumstances.
 
 
