@@ -4,7 +4,8 @@ C#, C++, Java are my best friends. I also study on my own Music Production, Desi
 
 Most time of the year I live in Finland. During the late Autumn and winter I reside in Southern Europe or move into other different directions. 
 ㅤ
-I am the owner of a non-profit project and the main investigator known as "List of companies and individuals with signs of non-transparent activities and possible involvement in corrupt and monopolistic practices"
+
+🌱 I am the owner of a non-profit project and the main investigator known as "List of companies and individuals with signs of non-transparent activities and possible involvement in corrupt and monopolistic practices"
 
 
 ⚡Current Status: open for proposals 
